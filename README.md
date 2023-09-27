@@ -1,5 +1,5 @@
 ### Hi 👋
 
-# I'm [Harvey Jiang](https://portfolio.harveyj.tech/).
+# I'm [Harvey Jiang](https://harveyjiang.com/).
 
 -----
